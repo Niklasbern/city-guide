@@ -21,3 +21,4 @@ Hamburg ist eine wunderschöne Stadt im Norden Deutschlands mit zahlreichen Sehe
 - Elbgold – Perfekter Kaffee in der Schanze.
 - Public Coffee Roasters – Hervorragender Espresso.
 - Cafe Paris – Perfektes französisches Frühstück.
+- HafenCity – Ein modernes Viertel mit beeindruckender Architektur.
