@@ -20,3 +20,4 @@ Hamburg ist eine wunderschöne Stadt im Norden Deutschlands mit zahlreichen Sehe
 ## Beste Cafés in Hamburg
 - Elbgold – Perfekter Kaffee in der Schanze.
 - Public Coffee Roasters – Hervorragender Espresso.
+- Cafe Paris – Perfektes französisches Frühstück.
