@@ -17,3 +17,6 @@ Hamburg ist eine wunderschöne Stadt im Norden Deutschlands mit zahlreichen Sehe
 - Ein Fischbrötchen an den Landungsbrücken genießen.
 - Traditionelle Franzbrötchen probieren.
 
+## Beste Cafés in Hamburg
+- Elbgold – Perfekter Kaffee in der Schanze.
+- Public Coffee Roasters – Hervorragender Espresso.
